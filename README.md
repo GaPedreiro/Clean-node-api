@@ -1,1 +1,1 @@
-# Manguinho
+# Curso do Manguinho.
